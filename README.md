@@ -1,3 +1,10 @@
+
+![download](https://github.com/user-attachments/assets/84c9189c-da11-4864-8ce1-ab8d6d15546d)
+
+
+
+
+
 **RESUME PROJECT 6**
 
 **Provide Insights to the Marketing Team in Food & Beverage Industry**
